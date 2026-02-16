@@ -26,7 +26,7 @@ In addition, the association is not the ideal place to address political topics 
 
 ## Consequences ##
 
-In general, the organizers of the association’s activities cannot act in place of public officials; therefore, if needed, they will provide support in contacting the local judicial authorities (or on-site law enforcement, where present) and in filing any reports or complaints.
+In general, the organizers of the association’s activities have no public-authority powers. If needed, they will provide support by involving the venue’s responsible staff (or any on-site security) and, where appropriate, by contacting law enforcement. They may also provide logistical support to anyone who intends to file reports or complaints with the competent authorities.
 
 ## Scope ##
 
